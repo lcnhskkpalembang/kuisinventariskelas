@@ -1,0 +1,2 @@
+# kuisinventariskelas
+LCN PALEMBANG
